@@ -14,3 +14,7 @@
 # Commodity Market
 ## Agriculture
 - [The BRICS trading system is already wiping out US farmers, as global price discovery is destroyed](https://youtu.be/z7m5Z6FuPbk)
+- [Investors Beware: US farmland to see historic price crash, amid soaring global ag productivity](url)
+
+## Oil
+- [Now it's oil: China, BRICS and OPEC+ build new trading system, locking out US suppliers and banks](https://youtu.be/uUyfVRwQk7E)
