@@ -7,3 +7,4 @@
 
 # Computing
 - [Sanctions were supposed to stop China's semiconductor industry. The opposite happened.](https://youtu.be/jIYR8Rrvaf0)
+- [Investor alert: Nvidia already in trouble, swamped by China's "all the above" strategy for chips](https://youtu.be/8H8XfKO-nEg)
