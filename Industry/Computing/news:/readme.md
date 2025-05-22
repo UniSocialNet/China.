@@ -1,0 +1,1 @@
+- [Huawei’s Forbidden Chip: How China Just Rewired the Global Tech Game](https://youtu.be/hOhTgAKrQow)
