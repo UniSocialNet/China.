@@ -4,3 +4,6 @@
 
 # Steel
 - [Investor Alert: Revolutionary ironmaking method will nullify tariffs and scramble iron ore markets](https://youtu.be/8WnvulH0URA)
+
+# Region: South America
+- [Why South America now does all its business with China: US companies, investors are dumb and lazy](https://youtu.be/wu5vo0E0jMo)
