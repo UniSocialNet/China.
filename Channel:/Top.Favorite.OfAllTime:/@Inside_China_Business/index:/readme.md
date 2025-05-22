@@ -1,0 +1,1 @@
+- [This new SUV from GM sells for $15,450. But Americans can't buy it.](https://youtu.be/8O5hk1zNwIc)
