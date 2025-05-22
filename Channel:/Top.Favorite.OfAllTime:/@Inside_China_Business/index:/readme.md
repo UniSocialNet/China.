@@ -7,3 +7,6 @@
 
 # Region: South America
 - [Why South America now does all its business with China: US companies, investors are dumb and lazy](https://youtu.be/wu5vo0E0jMo)
+
+# Passenger Aircraft
+- [China is killing Boeing, Part I: As a builder of passenger jets and competitor to COMAC](https://youtu.be/vNZcXNc9yJs)
