@@ -1,0 +1,1 @@
+- [This Company Is China’s Main Bet Against TSMC and Samsung | WSJ](https://youtu.be/b88mOUwxyJk)
