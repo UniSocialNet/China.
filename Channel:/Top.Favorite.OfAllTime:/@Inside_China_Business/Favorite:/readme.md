@@ -10,3 +10,7 @@
 
 # Computing
 - [Investor alert: Nvidia already in trouble, swamped by China's "all the above" strategy for chips](https://youtu.be/8H8XfKO-nEg)
+
+# Commodity Market
+## Agriculture
+- [The BRICS trading system is already wiping out US farmers, as global price discovery is destroyed](https://youtu.be/z7m5Z6FuPbk)
