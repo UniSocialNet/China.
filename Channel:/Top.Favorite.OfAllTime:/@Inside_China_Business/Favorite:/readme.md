@@ -4,3 +4,6 @@
 
 # Automotive
 - [China is winning the trade war. China passes Germany and Japan to lead the world in car exports.](https://youtu.be/OtempgZdIhU)
+
+# Computing
+- [Sanctions were supposed to stop China's semiconductor industry. The opposite happened.](https://youtu.be/jIYR8Rrvaf0)
