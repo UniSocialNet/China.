@@ -23,4 +23,6 @@
 - [Tether and the BRICS' central bank digital currencies are creating parallel, de-dollarized economies](https://youtu.be/jy29vJXPX7s)
 
 # Natural Resources
+
+# U.S. Sanctions
 - [US price tag for China's gallium export ban: $602 billion and new monopolies for Huawei](https://youtu.be/Qp4DNpJjHSs)
