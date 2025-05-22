@@ -1,3 +1,6 @@
 - [This new SUV from GM sells for $15,450. But Americans can't buy it.](https://youtu.be/8O5hk1zNwIc)
 - [The biggest Christian country in the world is . . . China?](https://youtu.be/IX7Cdbg2p9M)
 - [Amazon Logistics and China Factories will bankrupt millions of online stores, shippers, and brokers](https://youtu.be/gNof2Cac4jQ)
+
+# Steel
+- [Investor Alert: Revolutionary ironmaking method will nullify tariffs and scramble iron ore markets](https://youtu.be/8WnvulH0URA)
