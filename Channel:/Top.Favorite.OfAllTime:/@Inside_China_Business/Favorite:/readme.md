@@ -2,6 +2,9 @@
 - [Why China is winning.](https://youtu.be/7-WA64ecsgM)
 - [These high-paying American careers will be destroyed by Chinese competition within 10 years](https://youtu.be/oaWvEQj6em8)
 
+# Macro Economics
+- [Are we measuring China's GDP wrong?](https://youtu.be/UPXnchkT8II)
+
 # Automotive
 - [China is winning the trade war. China passes Germany and Japan to lead the world in car exports.](https://youtu.be/OtempgZdIhU)
 
