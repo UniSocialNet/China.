@@ -10,3 +10,4 @@
 
 # Computing
 - [Western chip sanctions guaranteed to fail as thousands of top Chinese scientists return home](https://youtu.be/M9d-o0uPE9I)
+- [Sanctions were supposed to stop China's semiconductor industry. The opposite happened.](https://youtu.be/jIYR8Rrvaf0)
