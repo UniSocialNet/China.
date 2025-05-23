@@ -14,3 +14,6 @@
 
 # Foreign Exchange
 - [China will NOT replace the USD as the world's reserve currency. What's ahead will be much worse.](https://youtu.be/uqpQBOwfXoI)
+
+# DeepSeek A.I.
+- [DeepSeek exposes a fundamental advantage of China's system: their whole economy is open source](https://youtu.be/yEkAdyoZnj0)
