@@ -11,6 +11,8 @@
 # Computing
 - [Western chip sanctions guaranteed to fail as thousands of top Chinese scientists return home](https://youtu.be/M9d-o0uPE9I)
 - [Sanctions were supposed to stop China's semiconductor industry. The opposite happened.](https://youtu.be/jIYR8Rrvaf0)
+## Photonics
+- [China is "changing lanes" and winning on all fronts in the Chip War](https://youtu.be/HuLbec3P_M4)
 
 # Foreign Exchange
 - [China will NOT replace the USD as the world's reserve currency. What's ahead will be much worse.](https://youtu.be/uqpQBOwfXoI)
